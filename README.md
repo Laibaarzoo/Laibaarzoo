@@ -1,6 +1,6 @@
 Hi there, I'm Laiba Arzoo 
 
-Marketing Student | Aspiring Business Analyst | Data Enthusiast
+Marketing Student | Data Enthusiast
 
 I'm interested in exploring how marketing, data, and technology come together to solve real-world business problems. I enjoy understanding consumer behaviour, identifying market trends, and turning data into meaningful insights that support smarter decisions.
 
